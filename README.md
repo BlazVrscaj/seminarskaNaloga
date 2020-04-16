@@ -1,0 +1,2 @@
+# seminarskaNaloga
+seminarska za vpo
